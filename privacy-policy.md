@@ -2,7 +2,7 @@ Privacy Policy
 
 Introduction
 
-Our privacy policy will help you understand what information we collect at Ads on Wheels, how AdsonWheels for Clients uses it, and what choices you have. Ads on Wheels built the [AdsonWheels for Clients] app as a free app. This SERVICE is provided by [AdsonWheels for Clients] at no cost and is intended for use as is. If you choose to use our Service, then you agree to the collection and use of information in relation with this policy. The Personal Information that we collect are used for providing and improving the Service. We will not use or share your information with anyone except as described in this Privacy Policy.
+Our privacy policy will help you understand what information we collect at AdsonWheels for Clients, how AdsonWheels for Clients uses it, and what choices you have. AdsonWheels for Clients built the [AdsonWheels for Clients] app as a free app. This SERVICE is provided by [AdsonWheels for Clients] at no cost and is intended for use as is. If you choose to use our Service, then you agree to the collection and use of information in relation with this policy. The Personal Information that we collect are used for providing and improving the Service. We will not use or share your information with anyone except as described in this Privacy Policy.
 The terms used in this Privacy Policy have the same meanings as in our Terms and Conditions, which is accessible in our website, unless otherwise defined in this Privacy Policy.
 
 Information
